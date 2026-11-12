@@ -11,6 +11,13 @@ I’m a customer support and financial administration professional with 20+ year
 - Customer account management and issue resolution
 - Managing operations across four locations
 - Remote collaboration and organized digital records
+- ## Real Estate and Property Management
+
+- Managed rent collection, overdue accounts, billing disputes, and payment extensions.
+- Handled lease administration and renewals, including negotiating terms and incentives.
+- Supported buyers and sellers through real estate transactions.
+- Coordinated communication with tenants, property owners, clients, and vendors.
+- Maintained accurate financial records, confidential documents, and transaction deadlines.
 
 ## Tools I’ve used
 
